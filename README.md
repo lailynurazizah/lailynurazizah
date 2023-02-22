@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# Halo semua! 
+
+Perkenalkan nama saya **Laily Nur Azizah**.
+
+Saya seorang **mahasiswi** di jurusan Statistika Universitas Indonesia.
+
+Saat ini saya berada di tahun ketiga universitas dan sedang menjalankan program MBKM yaitu studi independen melalui Bangkit 2023.
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/lailynurazizah/)ku ya.
